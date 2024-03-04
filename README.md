@@ -1,1 +1,1 @@
-### Hi there 👋 I'm currently learning to code!
+### Hi there 👋 I am seeking a Junior Software Developer role! 
